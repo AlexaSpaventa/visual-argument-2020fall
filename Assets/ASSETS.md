@@ -7,3 +7,4 @@
 |Cartoon Person|Net Clipart. https://www.netclipart.com/isee/iboiRTm_person-clip-art-shadow-man-silhouette-walking-away/. License: Personal Use.|
 |Grass (Alive)|Clipart Library. http://clipart-library.com/clipart/1909000.htm License: Personal Use.|
 |Grass (Dead)| Clean Png. https://www.cleanpng.com/png-grass-gratis-download-brown-simple-grass-decoratio-496898/. License: Personal Use.|
+|Facts used on image|World Economic Forum. https://www.weforum.org/agenda/2016/10/air-pollution-the-true-cost-in-numbers/|
